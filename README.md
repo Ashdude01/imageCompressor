@@ -1,1 +1,1 @@
-Developed by Ashish Raj Verma // vermatimes.com
+Developed by Ashish Raj Verma // https://vermatimes.com
